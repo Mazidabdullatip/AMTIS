@@ -1,2 +1,2 @@
 # AMTIS - TASK
-"My name is Mazidatul Izzah Binti Abdul Latip, and I have diligently worked on the assigned task with the aim of meeting and exceeding your requirements. I hope that my efforts have resulted in a satisfactory outcome."
+My name is Mazidatul Izzah Binti Abdul Latip, and I have diligently worked on the assigned task with the aim of meeting and exceeding your requirements. I hope that my efforts have resulted in a satisfactory outcome.
